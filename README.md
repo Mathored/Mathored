@@ -13,4 +13,4 @@ Spanish
 
 📫 **How to reach/follow me**
 - Personal mail: [leandromatiasalvarez@gmail.com](leandromatiasalvarez@gmail.com)
-- Linkedin: [Matías Alvarez](https://www.linkedin.com/in/mat%C3%ADas-alvarez-b03952125/).
+- Linkedin: [Matías Alvarez](https://www.linkedin.com/in/matías-alvarez/).
